@@ -1,1 +1,1 @@
-# kkk.py
+# kkk..mjotd
